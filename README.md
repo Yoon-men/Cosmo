@@ -1,2 +1,1 @@
-# Cosmo
-宇宙の魔人
+> "You can only think of Halloween until you die."
